@@ -22,7 +22,10 @@ Your turn 👇
 » 04-October-2024 by [Teddy ASSIH](@Ionfinisher)
 » Link to Account: https://x.com/ion_finisher
 
-» 07-October-2024 by [Harsh Bhat](@HarshBhatX)
+» 07-October-2024 by [Sthita](@HarshBhatX)
 » Link to Account: https://x.com/HarshBhatX
+
+» 11-October-2024 by [Harsh Bhat](@Sthita1802782)
+>> Link to Account: https://x.com/Sthita1802782
 
 ---
